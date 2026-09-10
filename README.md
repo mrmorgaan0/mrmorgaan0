@@ -10,7 +10,7 @@ experience:
 
 currently: building something new in the wearable space 🐬
 
-i also love fitness, reading, and edm music :p
+i also love fitness, reading, and edm music!
 ask me abt:
 - favorite philosophers & books
 - habit stacking + workflow optimization
