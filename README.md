@@ -14,6 +14,7 @@ i also love fitness, reading, and edm music!
 ask me abt:
 - favorite philosophers & books
 - habit stacking + workflow optimization
+- my dj setlist
 - hardware
 
 some side quests:
